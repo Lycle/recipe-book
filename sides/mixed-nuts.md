@@ -8,7 +8,7 @@
 - 1 teaspoon smoked paprika
 - 1/2 teaspoon cayenne pepper (adjust to taste)
 - 1 teaspoon fresh rosemary, finely chopped
-- 1 teaspoon sea salt
+- 1/2 teaspoon sea salt
 - 1/2 teaspoon black pepper
 
 ## Instructions
